@@ -2,8 +2,8 @@
 
 ## 👤 Giới thiệu thành viên nhóm
 
-**Lê Trọng Khanh**
-**Phạm Quỳnh Như**
+**Lê Trọng Khanh** <p>
+**Phạm Quỳnh Như** 
 
 ✨ **Cảm ơn bạn đã ghé thăm!** ✨
 
